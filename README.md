@@ -14,6 +14,8 @@
 
 - 📫 How to reach me **Fedelicata@gmail.com**
 
+- ⚡ Fun fact i also studied Tango and Jazz with double bass and love to train almost everyday.
+
 
 
 ## 🚀 Languages and Tools:
